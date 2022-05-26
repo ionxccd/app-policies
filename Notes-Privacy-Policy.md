@@ -8,6 +8,6 @@ We do not require any data from our users and in turn do not collect any data on
 
 If you have questions about privacy, please contact us via email: davidforpraise@gmail.com
 
-Yours sincerely,  
+Sincerely yours,  
 David Aasa
 New Jersey, United States.  
